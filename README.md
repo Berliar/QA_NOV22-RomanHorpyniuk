@@ -1,0 +1,1 @@
+# QA_NOV22-RomanHorpyniuk
